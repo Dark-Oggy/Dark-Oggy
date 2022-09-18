@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Dark-Oggy
+- 👋 Hi, I’m @Shiva-kumar and my coder, gamer name is @Dark-Oggy.
 - 👀 I’m interested in python learning because it is very easy to learn and i am no decided to my career plan. and suddenly i have open youtube or harry sir front of me.
 - 🌱 I’m currently learning python on youtube.
 - 💞️ I’m looking to collaborate on harry sir.
